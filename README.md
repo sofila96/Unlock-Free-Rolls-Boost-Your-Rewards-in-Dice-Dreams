@@ -6,9 +6,9 @@ First, you need to reach level 15 in Monopoly GO to unlock the album feature. On
 
 Once you have done it, you should have the free dice in-game and be able to continue playing Monopoly GO on your mobile. It is that easy, making the system easy.
 
-**[✅👉 CLICK HERE GET FREE](https://usaofferzon.com/dicedreams}**
+**[✅👉 CLICK HERE GET FREE](https://usaofferzon.com/dicedreams)**
 
-**[✅👉 CLICK HERE GET FREE](https://usaofferzon.com/dicedreams}**
+**[✅👉 CLICK HERE GET FREE](https://usaofferzon.com/dicedreams)**
 
 Roll up and grab all the new free Monopoly Go dice links, offering handy rolls in this free-to-play mobile version of the classic board game. We update this guide multiple times daily to ensure we have all the latest links, so keep checking back to maximize on all these great rewards.
 
